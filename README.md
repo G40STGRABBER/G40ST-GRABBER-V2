@@ -3,6 +3,6 @@ We offer...
 🖥️System Info🖥️, Discord Info, 🍪Cookies🍪, Passwords and a IP Logger (Beta)
      Overall this is a really good tool to get revenge on someone!
 Join G40ST's Basement Today!
-     https://discord.gg/UkNBAPcdgH 
+     https://discord.gg/nVCmK2h5 
 
 !!THIS IS FOR EDUCATION PURPOSES ONLY!!
